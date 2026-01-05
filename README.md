@@ -1,3 +1,10 @@
+
+![Capture](https://github.com/user-attachments/assets/6608cc6f-2ee9-46ea-b092-2886498b53f1)
+
+
+
+
+
 ===========================================
            Switch Icon Resizer
                 by The OTher Side
